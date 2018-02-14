@@ -1,10 +1,13 @@
 - Help! - John Lennon and Paul McCartney
 - Happy birthday to you - ヴォイス・アンサンブル
 - 上を向いて歩こう - 坂本　九→SUKIYAKI
-- Land of hope of glory- 威風堂々
+- Land of hope of glory- 威風堂々 - エルガー
 - ふるさと - 高野辰之
 - 独唱-アリア
 - ボレロ - クラッシックwith no 変化→オーケストラ・スコア
 - 英語音名 → CDEFGAB
-- さんぽ 
+- さんぽ
 - 坂本龍一
+- アイーダ　- 凱旋行進曲(ヴェルディ（イタリア))
+- J.Sバッハ→ドイツ
+- 滝廉太郎　荒城の月　花
