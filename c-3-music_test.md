@@ -1,1 +1,10 @@
 - Help! - John Lennon and Paul McCartney
+- Happy birthday to you - ヴォイス・アンサンブル
+- 上を向いて歩こう - 坂本　九→SUKIYAKI
+- Land of hope of glory- 威風堂々
+- ふるさと - 高野辰之
+- 独唱-アリア
+- ボレロ - クラッシックwith no 変化→オーケストラ・スコア
+- 英語音名 → CDEFGAB
+- さんぽ 
+- 坂本龍一
