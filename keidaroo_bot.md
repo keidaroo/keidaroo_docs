@@ -1,3 +1,8 @@
+# Most recent update
+リストに追加した
+取得するツイートを直近180件まで追加した
+
+
 # リストです!!!
 
 
@@ -44,3 +49,14 @@ Bwamガチャ   |   babcs2035
 いか刺しガチャ   |   ikasashi33
 ぴくとガチャ   |   simauma1203
 Colaholicガチャ   |   lcolaholicl
+keymoonガチャ   |   kymn_
+桃音ガチャ   |   259_Momone
+モモガチャ   |   259_Momone
+エカスドクィナガチャ   |   yfba_
+metropolisガチャ   |   metropo53821512
+幼女ガチャ   |   littlegirl0820
+Tomohiroガチャ   |   cotton392
+meaガチャ   |   mea_o00
+豚ガチャ   |   intersect_pigpi
+かりんとうガチャ   |   kt_rin0408ss20
+おーじガチャ   |   are_you_takasu
